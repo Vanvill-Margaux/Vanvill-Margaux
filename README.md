@@ -1,3 +1,9 @@
-[![afd1ff1cbb9aae90c61c6768cf17cb66.jpg](https://i.postimg.cc/6pXzwhqq/afd1ff1cbb9aae90c61c6768cf17cb66.jpg)](https://postimg.cc/BXm2BHxf)
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ole&pause=1000&color=8B5041&width=500&lines=Dazai+Osamu)](https://git.io/typing-svg)
-<a href='https://postimg.cc/21RqH5R8' target='_blank'><img src='https://i.postimg.cc/21RqH5R8/Khong-Co-Tieu-De814-20260617221313.png' border='0' alt='Khong-Co-Tieu-De814-20260617221313'></a>
+︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
+<p align="center"> 𝕷𝖔𝖛𝖊 𝕱𝖔𝖗 𝙁𝙮𝙤𝙙𝙤𝙧 𝙈𝙞𝙠𝙝𝙖𝙮𝙡𝙤𝙫𝙞𝙘𝙝 𝘿𝙤𝙨𝙩𝙤𝙚𝙫𝙨𝙠𝙮 
+<p align="center"><a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/8ccRxK6X/Khong-Co-Tieu-De819-20260708135355.png' border='0' alt='Khong-Co-Tieu-De819-20260708135355'></a>
+<p align="center">𝕮𝖗𝖎𝖒𝖊 𝖆𝖓𝖉 𝕻𝖚𝖓𝖎𝖘𝖍𝖒𝖊𝖓𝖙.
+<p align="center"><a href='https://postimg.cc/vcRMJZ0r' target='_blank'><img src='https://i.postimg.cc/vcRMJZ0r/08bc964ca2d72ac17ace727ff726e145.jpg' border='0' alt='08bc964ca2d72ac17ace727ff726e145'></a>
+<p align="center">︵︵︵︵︵︵︵︵︵︵︵︵︵  
+<p align="center">⭒𐙚⭒๋๋࣭𓈒　໒꒱ིྀ　✧❀༝
+<p align="center">Федя 𝓕𝔂𝓸𝓭𝓸𝓻 Фёдор
+<p align="center"><a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/ZqmrJKN5/Khong-Co-Tieu-De821-20260708140810.png' border='0' alt='Khong-Co-Tieu-De821-20260708140810'></a>
